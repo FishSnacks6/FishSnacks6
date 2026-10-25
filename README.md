@@ -1,7 +1,7 @@
 ## Hi there 👋
 Hyelo I'm fishsnacks 
 
-##update (October 25th, 2026)
+## update (October 25th, 2026)
 hi, it's been a while since i've been here, no one probably cares because no one looks at my projects at all, but i will try to make things good enough for you, i'll be good enough for you, i know it.
 anyways hope you have a good day! :)
 
